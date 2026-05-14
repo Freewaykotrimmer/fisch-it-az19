@@ -1,4 +1,4 @@
-#  
+#  Experience fisch it like never before with fisch it automatic Script, the #1 Script. Includes no clip and auto-sell for unbeatable performance.
 
 
 
